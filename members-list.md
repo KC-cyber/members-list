@@ -20,7 +20,7 @@ Also don't be a cop-out by saying something like "I am happy/looking forward to 
 
 **Name**:  Krishna Chaitanya B V  
 **SRN**:  PES1201800420  
-**Link to Profile**:  [KC-tronix](https://github.com/KC-tronix)  
+**Link to Profile**:  [KC-cyber](https://github.com/KC-cyber)  
 **About Me**:  Wasted nearly one-fifth of my life just on sports and fifa. I like facing new challenges and coding has helped me do so. I dare anyone not to find me fun to work with(in all aspects). An enthusiastic learner at best in all major fields. The rest of me is for you all to figure out.
 
 **Name**:  Bhargav S. Kumar  
